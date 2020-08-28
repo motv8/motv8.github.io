@@ -1,3 +1,10 @@
+---
+layout: default
+title: My Code for Gratitude
+parent: Blog
+nav_order: 3
+---
+
 #  My Code for Gratitude
 
 The quality of being thankful, readiness to show appreciation for and to return kindness. That's how a dictionary would define it.
