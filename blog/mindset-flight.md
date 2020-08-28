@@ -1,3 +1,9 @@
+---
+layout: default
+title: Mindset flight
+parent: Blog
+nav_order: 4
+---
 
 
 # Upgrade to First-class | Mindset flight
