@@ -1,3 +1,12 @@
+---
+layout: default
+title: Born to Lead
+parent: Blog
+nav_order: 1
+---
+
+# Born to Lead
+
 Today my son turned 2.5 years old. His midwife carried him on day 1 and said to us (my wife and I): you have got a leader.
 A leader?! I wondered. How could you possibly tell in an early age who he is, or what he is going to be?!
 As the days and months unfold, my wife and I recognized a pattern.
