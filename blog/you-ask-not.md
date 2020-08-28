@@ -5,6 +5,8 @@ parent: Blog
 nav_order: 2
 ---
 
+# You have not, because you ask not!
+
 Said Mr. Harvey, wise words on the go. 
 
 
