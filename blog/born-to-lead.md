@@ -14,7 +14,10 @@ Whenever we went for a big decision, since he was born, there was a voice that i
 We went to buy our first car, have been wandering around for quite a time checking features, prices, suppliers that we may connect with.
 Whenever we made a viewing into a car shop that was not meant to match our little leader's decision, he made a noise.
 That noise was extremely loud that we couldn't listen to other voices.
-And one day we entered a car shop, surprisingly enough the one around the corner where we live, that same leader, fall asleep, deeply. We were thanking the lord left and right for having some serenity to close the deal. Things went well till the signature of the contract, when he suddenly woke up and looked at us with a very strong questioning eyes, what are you both doing here while I'm trying to sleep?! We said, Hey what do you think about this car? Do you like it? He smiled! That was absolutely mind blowing for us. How could someone be that strong, confident and natural at the same time in leading others and taking charge of their decision making.
+And one day we entered a car shop, surprisingly enough the one around the corner where we live, that same leader, fall asleep, deeply. 
+We were thanking the lord left and right for having some serenity to close the deal. 
+Things went well till the signature of the contract, when he suddenly woke up and looked at us with a very strong questioning eyes, what are you both doing here while I'm trying to sleep?! We said, Hey what do you think about this car? Do you like it? He smiled! 
+That was absolutely mind blowing for us. How could someone be that strong, confident and natural at the same time in leading others and taking charge of their decision making.
 
 We are all born from the same source, the source of pure intelligence, pure potentiality.
 The source which doesn't know fear, doubt or impossibility. We are born to lead not to follow.
